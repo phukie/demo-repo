@@ -8,5 +8,5 @@ test out the git !!!!
 Eat that SHIT 
 
 Some more to go .
-Some more
+Some things more
 More to come
